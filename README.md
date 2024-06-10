@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ksksashank@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1H7N9VbeqOWJmPQlnkcjK2RjypHNtiiWs/view?usp=sharing](https://drive.google.com/file/d/1H7N9VbeqOWJmPQlnkcjK2RjypHNtiiWs/view?usp=sharing)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/1H7N9VbeqOWJmPQlnkcjK2RjypHNtiiWs/view?usp=sharing)
 
 - ⚡ Fun fact **I was on TV :)**
 
